@@ -1,13 +1,10 @@
-# projeto-messi
-Olá , neste perfil falaremos sobre futebol, Lionel Messi ,Corinthians.
+LIONEL MESSI.🇦🇷
+
+Olá , neste perfil falaremos sobre o melhor jogador o mundo.
 
 
 
-
-
-
-
-![](https://media.tenor.com/2zWbfCA7pawAAAAd/lionel-messi-arjantin.gif)
+![](https://media.tenor.com/VhFmRTHDglQAAAAM/messi-ronaldo.gif)
 
 
 
